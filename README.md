@@ -1,1 +1,0 @@
-# qornelipus.github.io
